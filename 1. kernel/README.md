@@ -1,4 +1,3 @@
-![os_1_2018204058_A-01](https://github.com/user-attachments/assets/1d594fe7-173a-4638-b65b-dda77eed260d)
 ![os_1_2018204058_A-02](https://github.com/user-attachments/assets/c0be1f16-c627-4829-90d2-e823d1dfeed5)
 ![os_1_2018204058_A-03](https://github.com/user-attachments/assets/414353be-376f-46ae-a702-d770e54d26bd)
 ![os_1_2018204058_A-04](https://github.com/user-attachments/assets/7d50718b-5d7d-42b4-a7ad-447c7bf6a54f)
